@@ -6,3 +6,4 @@ List for the weekend
 * birthday!!!!
 * Skype date with the parents
 * buy patio furniture
+* add new items here
