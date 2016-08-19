@@ -6,3 +6,5 @@ List for the weekend
 * birthday!!!!
 * Skype date with the parents
 * delete some stuff
+* buy patio furniture
+* add new items here
